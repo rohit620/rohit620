@@ -11,5 +11,3 @@ Here are some ideas to get you started:
 - 💬 Ask me about tech related stuff
 - 📫 How to reach me: mail-rohitreddy620s@gmail.com
 
-
--->
